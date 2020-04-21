@@ -1,4 +1,4 @@
-# JAKOVLJEV APOKRIF
+# Jakovljev apokrif (Tajna knjiga Jakovljeva)
 
 [Jakov] piše [...] thos: Mir [s vama od] Mira, [ljubav od] Ljubavi,
 [milost od ] Milosti, [vjera] od Vjere, život od Svetog Života!
